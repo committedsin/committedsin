@@ -10,8 +10,9 @@
 <h1 align="center">
  byi ` BEFORE YOU INTERACT .
 </h1>
-!- i'd prefer if you'd whisper to interact , i am mostly offtab/afk. 
 
+!- i'd prefer if you'd whisper to interact , i am mostly offtab/afk. 
+ 
 !- i adore c+h and wouldn't mind at all, no need to ask! specifically becuase i have a tc [touch comfort].  <- this excludes dniu_
 
 !- i like to move around a lot, mostly during long c+h sessions. please don't mind me interacting with someone else or doing something stupid.
@@ -26,9 +27,11 @@
 <h1 align="center">
  iwc ` INTERACT WITH CAUTION
 </h1>
+
 !- HB/HH/TADC fandom [i have bad experiences with you guys.. sorry]
 
 !- under 11 and over 19 [just a pref range its okay if you interact!]
+
 <h1 align="center">
 # LINKS ` :
 </h1>

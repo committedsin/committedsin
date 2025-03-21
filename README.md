@@ -1,5 +1,4 @@
-
-			   		->	 test ^_^"
+i'll add something here later im lazy.
 
 <!---
 committedsin/committedsin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -17,6 +17,12 @@
 
 !- basic dni critera, thats it feel free to interact otherwise.. keep in mind i block freely.
 
+## iwc ` INTERACT WITH CAUTION
+
+!- HB/HH/TADC fandom [i have bad experiences with you guys.. sorry]
+
+!- under 11 and over 19 [just a pref range its okay if you interact!]
+
 # LINKS ` :
 [atabook](https://xinz.atabook.org) . [rentry](https://rentry.co/sincerelyxin) . [guns.lol](https://guns.lol/commitedsin) . [prns pg](https://en.pronouns.page/@xinz)
 

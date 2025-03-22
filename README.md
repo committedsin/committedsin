@@ -23,12 +23,18 @@
 <h1 align="center">
  dni ` DO NOT INTERACT
 </h1>
-!- basic dni critera, thats it feel free to interact otherwise.. keep in mind i block freely.
+!- basic dni critera, thats it feel free to interact otherwise.. keep in mind i block freely. 
+
+### [- the critera](https://dni-criteria.carrd.co)
 <h1 align="center">
+
+
  iwc ` INTERACT WITH CAUTION
 </h1>
 
 !- HB/HH/TADC fandom [i have bad experiences with you guys.. sorry]
+
+!- dsmp fandom
 
 !- under 11 and over 19 [just a pref range its okay if you interact!]
 

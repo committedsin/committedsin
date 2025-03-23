@@ -17,6 +17,8 @@
 
 !- i get anxious sometimes and might have a hard time interacting, though i love conversations. just not when i start them ^_^
 
+!- occasional crowd discomf unless im with a friend !
+
 ## dni ` DO NOT INTERACT
 
 !- basic dni critera, thats it feel free to interact otherwise.. keep in mind i block freely. 

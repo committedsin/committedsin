@@ -36,7 +36,7 @@
 
 ## LINKS ` :
 
-[atabook](https://xinz.atabook.org) . [rentry](https://rentry.co/sincerelyxin) . [guns.lol](https://guns.lol/commitedsin) . [prns pg](https://en.pronouns.page/@xinz)
+[atabook](https://xinz.atabook.org) . [rentry](https://rentry.co/sincerelyxin) . [guns.lol](https://guns.lol/commitedsin) . [prns pg](https://en.pronouns.page/@xinz) . [prns.cc](https://pronouns.cc/@xinz)
 
 <!---
 committedsin/committedsin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -5,7 +5,7 @@
 
   ### BYI ` :
     
-   ` social anxiety , w2iuf [im almost offtab everyday] , c+h encouraged unless on dni_ or with friends , ballbaa info i forgot
+   ` social anxiety , w2iuf [im almost offtab everyday] , c+h encouraged unless on dni_ / ships okay , ballbaa info i forgot
    
   ### MY LINKS ` :
     
